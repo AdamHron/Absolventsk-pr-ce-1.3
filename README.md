@@ -1,1 +1,1 @@
-# Absolventsk-pr-ce-1.3
+# Absolventska-prace-1.3
